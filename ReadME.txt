@@ -1,0 +1,1 @@
+this game is MaineSweeper for whom has dificulty looking at the monitor
